@@ -7,7 +7,3 @@ I can share my expertise as a highly skilled and experienced mage. However, I am
 
        glassendaniel4@gmail.com
        +13203613646        
-
-
-
-
