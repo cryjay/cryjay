@@ -6,4 +6,3 @@ I can share my expertise as a highly skilled and experienced mage. However, I am
 - 🤝 Intouch with me
 
        glassendaniel4@gmail.com
-       +1-(320)-361-3646        
