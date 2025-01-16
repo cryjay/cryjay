@@ -5,11 +5,7 @@ I can share my expertise as a highly skilled and experienced mage. However, I am
 
 <h2 align="center">🤝 Intouch with me </h2>
 <div align="center">
-    <a href="https://join.skype.com/invite/aJmZgas3b6p8">
-        <img src='https://img.icons8.com/color/344/skype.png' height="40">
-    </a>
-    <a href="https://join.skype.com/invite/aJmZgas3b6p8">
-        <img src='https://img.icons8.com/color/344/skype.png' height="40">
+    <a href="https://mail.google.com/glassendaniel4@gmail.com">
     </a>
 </div>
 
